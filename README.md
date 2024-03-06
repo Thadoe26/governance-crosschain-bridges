@@ -10,6 +10,10 @@
  `++:           :++`  .++-           :++`    :+//+:        `++:----------`
  -/:             :/-  -/:             :/.     ://:         `/////////////-
 ```
+BOSS: THADOE26 ™ ALPHA, ANDREW PAUL RODRIGUEZ 
+
+(WHY DO I HAVE THIS TRULY I HAVE SO MANY IDEAS TRYING TO UNDERSTAND REGULARLY THIS FURTHERMORE I NEED MY MOTHER FUCKING FACE BACK -MY BREAD 🍞 MY MONEY- TO SAY THE LEAST HIT MY CASH APP $DOEHOE26 )
+
 
 # Aave Governance Cross-Chain Bridges
 
